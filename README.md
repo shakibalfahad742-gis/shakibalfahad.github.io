@@ -15,8 +15,12 @@ Communication: Project Management, Public Engagement, Report Writing
 
 ## Experiences 
 
-Teaching Assistant – Ohio University (GIS & Physical labs)  
+Teaching Assistant – Ohio University (GIS & Physical Geography Labs)  
+
 Research Assistant – Disaster Research Training and Management Center  
-Teaching Assistant - University of Dhaka (GIS & Remote Sensing Labs)
+
+Teaching Assistant – University of Dhaka (GIS & Remote Sensing Labs)  
+
 Research Assistant – Oxfam Bangladesh  
+
 Research Assistant – Government of Bangladesh  
